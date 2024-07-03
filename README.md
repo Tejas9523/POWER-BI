@@ -1,1 +1,1 @@
-[Sales.pdf](https://github.com/user-attachments/files/16076513/Sales.pdf)
+![Uploading Sales_page-0001.jpg…]()
